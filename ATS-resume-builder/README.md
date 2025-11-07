@@ -202,6 +202,7 @@ If you encounter any issues or have questions:
 
 ---
 
-**Made with ❤️ for job seekers worldwide**
+**Made with ❤️ for job seekers worldwide - Maaz Anwar**
 
 *Build your professional resume with confidence and land your dream job!*
+
